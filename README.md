@@ -1,1 +1,2 @@
 ![](mambo.jpg)
+![](nicenature.gif)
